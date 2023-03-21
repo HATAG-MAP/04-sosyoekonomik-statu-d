@@ -1,0 +1,1 @@
+# 04-sosyoekonomik-statu-d
